@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **kvenkatajagadesh@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1O5aEsrl-YUNXK7JyN5YcYgIrKksxAyg-/view?usp=share_link](https://drive.google.com/file/d/1O5aEsrl-YUNXK7JyN5YcYgIrKksxAyg-/view?usp=share_link)
+
 
 - ⚡ Fun fact **I am funny 😛**
 
